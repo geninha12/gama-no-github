@@ -1,0 +1,1 @@
+Estou gostando muito do curso! A didática é incrível e sinto que posso alavancar na area de programação com o programa Hiring Coders. Toda a atenção dada aos alunos mostra que o que vocês querem é realmente nos ajudar e compartilhar grande parte do conhecimento que vocês tem! Muito obrigada por isso :D
